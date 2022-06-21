@@ -1,1 +1,1 @@
-在https://madaodei.github.io/xm/xm.json
+在https://madaodei.github.io/xm/biubiutv.txt
