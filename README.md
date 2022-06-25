@@ -1,2 +1,2 @@
 在https://madaodei.github.io/xm/biubiu1.txt
-https://madaodei.github.io/xm/xiaobai.json
+https://madaodei.github.io/xm/xm.json
